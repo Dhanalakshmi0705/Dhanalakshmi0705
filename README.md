@@ -30,4 +30,4 @@
 
 📫 **Connect with me:**  
 - **LinkedIn:** [linkedin.com/in/dhanalakshmi-murugan-b67870198](https://linkedin.com/in/dhanalakshmi-murugan-b67870198)  
-- **Email:** dhanalakshmimurugan7@gmail.com
+- **Email:** dhanalakshmimurugan0705@gmail.com
